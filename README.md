@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TonnyMast
 - 👀 I’m interested in computer programming science/engineering
-- 🌱 I’m currently learning cloud caping and multi solve
-- 💞️ I’m looking to collaborate on Words Council Peace 
+- 🌱 I’m currently learning cloud caping and multi propose solve
+- 💞️ I’m looking to collaborate on Worlds Peace Council
 - 📫 How to reach me antonioaugustolinsdias@gmail.com ou @rastantonin on Instagram 
 - ⚡ Fun fact: had travel 5000km of Brazilian litoral by foot and spend 158 Days
 
